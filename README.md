@@ -1,1 +1,1 @@
-Favorite food: Sinigang
+Favorite Places: New York, Tokyo, Seoul
