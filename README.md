@@ -1,1 +1,1 @@
-Crush: No one (Study First)
+Favorite food: Sinigang
