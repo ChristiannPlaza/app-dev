@@ -1,1 +1,1 @@
-Favorite Places: New York, Tokyo, Seoul
+Dream: My dream is to be NASA Programmer and become a Billionaire
