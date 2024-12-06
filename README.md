@@ -1,1 +1,5 @@
-Section; BSIT 3.1C
+Section: BSIT 3.1C
+
+Landayan Elementary School
+SPRCNHS
+DJAMPNS
