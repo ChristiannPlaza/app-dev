@@ -1,1 +1,1 @@
-Title Proposal: Wala pa po
+Favorite Game: Valorant, League of Legends
