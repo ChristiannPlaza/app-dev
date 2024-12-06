@@ -1,1 +1,1 @@
-Favorite Game: Valorant, League of Legends
+Favorite Subject : App dev
